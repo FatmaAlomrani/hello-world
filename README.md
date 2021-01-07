@@ -1,5 +1,5 @@
 # hello-world
 
 Fatma is here
-Feminist nd libral
+Feminist and libral
 I like pets and spagitte!
